@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mattiah @Dramexas
+- 👀 I’m interested in Science, Computers
+- 🌱 I’m currently learning Python and Engineering 
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me : My Twitter @ilocrybaby
